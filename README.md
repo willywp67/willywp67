@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @willywp67
+- 👋 Hi, I’m @willywp
 - 👀 I’m interested in Art Direction and Graphic Design.
 - 🌱 I’m currently learning Figma, Premiere Pro, Canva and how to integrate AI into my process.
 - 💞️ I’m looking to collaborate on ...
